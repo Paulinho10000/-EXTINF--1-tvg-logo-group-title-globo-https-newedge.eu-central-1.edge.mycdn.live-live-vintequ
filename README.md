@@ -1,0 +1,1 @@
+# -EXTINF--1-tvg-logo-group-title-globo-https-newedge.eu-central-1.edge.mycdn.live-live-vintequ
